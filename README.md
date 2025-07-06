@@ -33,7 +33,7 @@
 
 ### 📫 Как связаться
 
-- Telegram: [@Sanirium](https://t.me/Alexandr_rd)
+- Telegram: [@Alexandr_rd](https://t.me/Alexandr_rd)
 - Email: sandedreamway@mail.ru
 
 ---
